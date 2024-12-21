@@ -1,0 +1,2 @@
+# SverPin
+Стикеры от @SverLord
